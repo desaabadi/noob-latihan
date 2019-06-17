@@ -1,0 +1,2 @@
+# noob-latihan
+Noob latihan
